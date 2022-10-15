@@ -1,0 +1,2 @@
+# metot tanimlama
+ 
